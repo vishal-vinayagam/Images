@@ -1,1 +1,1 @@
-College evet Images alignments
+College Event Images uploarding platform
